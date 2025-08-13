@@ -4,6 +4,6 @@
 - ![Alt text](tooltip1.jpg "")
 - Sad having to mention this, however, due to certain recent events, no other choice remains.
 - I take pride in being a Microsoft Wiki Author & Editor. Anyone attrmpting to hijack this account won't get far, as Microsoft is the parent company of Github.
-- Good Luck 🤡
+- https://www.youtube.com/watch?v=YU5vM4VSB3A
 
 - 2.
