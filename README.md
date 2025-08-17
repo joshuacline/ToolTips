@@ -6,4 +6,8 @@
 - I take pride in being a Microsoft Wiki Author & Editor. Anyone attrmpting to hijack this account won't get far, as Microsoft is the parent company of Github.
 - https://www.youtube.com/watch?v=YU5vM4VSB3A
 
-- 2.
+- 2. Favor me not.
+- There's an underlying reason behind a developer who's never asked for advice, directions, guidance, protection, donuts, astroturfing, munitions, or guardian angels. Bet you can guess.
+- ![Alt text](tooltip2.jpg "")
+
+- 3.
