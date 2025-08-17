@@ -9,5 +9,10 @@
 - 2. Favor me not.
 - There's an underlying reason behind a developer who's never asked for advice, directions, guidance, protection, donuts, astroturfing, munitions, or guardian angels. Bet you can guess.
 - ![Alt text](tooltip2.jpg "")
+- https://www.youtube.com/watch?v=YEkC40aM_o0
 
-- 3.
+- 3. Do what thou wilt
+- ![Alt text](tooltip3.jpg "")
+- The developer is not, cannot, and will not be held responsible for associated actions or damages related but not limited to unauthorized usage, zombie hordes, rouge agencies, gang warfare, scam artistry, leisurely strolls, clandestine operations, natural disasters, or any other 'acts of god'.
+
+- 4.
