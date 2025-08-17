@@ -13,6 +13,6 @@
 
 - 3. Do what thou wilt
 - ![Alt text](tooltip3.jpg "")
-- The developer is not, cannot, and will not be held responsible for associated actions or damages related but not limited to unauthorized usage, zombie hordes, rouge agencies, gang warfare, scam artistry, leisurely strolls, clandestine operations, natural disasters, or any other 'acts of god'.
+- The developer is not, cannot, and will not be held responsible for associated actions or damages related but not limited to unauthorized usage, zombie hordes, rouge agencies, governments, corporations, gang warfare, scam artistry, leisurely strolls, clandestine operations, natural disasters, or any other 'acts of god'.
 
 - 4.
